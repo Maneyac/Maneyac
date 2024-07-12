@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maneyac
-- 👀 I’m interested in  making websites,animation
+- 👀 I’m interested in  making websites,animation,learning new languages
 - 🌱 I’m currently learning  kali linux,web designing, animation
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me maneyacx@gmail.com
